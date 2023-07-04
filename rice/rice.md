@@ -16,7 +16,7 @@
 
 
 ## 参考
-[米を炊く](https://note.com/blaue_fuchs/n/ncfd64b86852e)
+[米を炊く](https://note.com/blaue_fuchs/n/ncfd64b86852e)  
 [ごはんを圧力鍋で炊ける？メリットや圧力鍋での炊き方、注意点をおさえよう](https://www.gohansaisai.com/fun/entry/detail.html?i=791)
 
 ## メモ
